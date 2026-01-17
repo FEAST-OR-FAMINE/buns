@@ -8,4 +8,5 @@
         
           " JAGERMAN WILL RISE!! "
           dni radqueers and darkshippers *
+           
 ![0222-construction](https://github.com/user-attachments/assets/ac50195b-e6b6-4421-be08-2e8fc83a94a1)
